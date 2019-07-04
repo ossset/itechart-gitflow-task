@@ -1,3 +1,9 @@
+# Name 
+Apple iPhone XS Max 512GB
+Apple iPhone XS Max 512GB
+Apple iPhone XS Max 512GB
+Apple iPhone XS Max 512GB
+Apple iPhone XS Max 512GB
 # Description
 
 iPhone Xs Max, here everything is clear: this is the perfect smartphone for those who spend most of their lives in front of the gadget screen. It is inconvenient to use the device with one hand, but if you buy a device with such a diagonal, you don’t really think about comfort - the most important thing is how the content looks. And there are no problems with this: that the video, the games, the tapes of social networks or news media are all just perfect. Except for the price. But the flagship for a thousand-odd dollars is a new reality. Cheaper they will not be.
